@@ -26,4 +26,4 @@
 	
 ¿ª·¢Õß£ºRipple
 
-email£ºchnhuangbo.gmail.com
+email£ºchnhuangbo@gmail.com
